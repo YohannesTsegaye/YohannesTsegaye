@@ -2,7 +2,7 @@
 - 👀 I’m interested in forntend development
 - 🌱 I’m currently learning recent frame works
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 0912128122/Yohannestsegaye1212@gmil.com
+- 📫 How to reach me 0912128122/Yohannestsegaye1212@gmail.com
 - 😄 Pronouns: As You Like
 - ⚡ Fun fact: Born to code
 
